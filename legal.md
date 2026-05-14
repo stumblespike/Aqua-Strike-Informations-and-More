@@ -1,6 +1,6 @@
 Developer: stumblespike
 
-Contact: [Support-E-Mail]
+Contact: aquastrikesupport1@gmail.com
 
 Country: Germany
 ​
