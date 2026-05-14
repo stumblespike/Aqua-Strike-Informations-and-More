@@ -16,4 +16,4 @@ We use the following third-party services:
 THNK (Multiplayer)
 
 ​4. Contact
-If you have questions about your data, contact us at: [Support-E-Mail]
+If you have questions about your data, contact us at: aquastrikesupport1@gmail.com
